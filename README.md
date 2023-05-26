@@ -12,7 +12,7 @@
 * Currently I'm working on nothing. Lazy boy heh
 
 * 📫 How to reach me -
-* Look it up if you can!
+* Catch me if you can! HAHAHAHAHA
 
 * 🗒️ Things you need to know -
 * Wa SanS!!
